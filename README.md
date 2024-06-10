@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on making my game
 - 📫 How to reach me: Discord lime_bubly
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I'm a Second-Year Electrical Engineering student
+- ⚡ Fun fact: I'm a Third-Year Electrical Engineering student
